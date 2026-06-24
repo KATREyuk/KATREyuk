@@ -6,7 +6,7 @@
 
 👯 I’m looking to collaborate on ... anything meaningful where heart meets bytes.
 
-🤔 I’m looking for help with ... building an invincible robot race that can defeat bullies and bring order to this amazing green planet filled with so many toxic people.
+🤔 I’m looking for help with ... building an invincible robot race that can defeat bullies and bring order to this amazing green planet filled with too many toxic people, but we the starlighters keep fighting.
 
 💬 Ask me about ... scuba diving, Galicia, best movies of all time, TV shows, quantum mechanics, fix broken hearts, meeting Guybrush Threepwood, ask me about Loom.
 
